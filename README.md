@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @barmstheweb3
-- 👀 I’m interested in ...web3 projects as a modrator/community manageran
+- 👀 I’m interested in ...web3 projects as a modrator/community manager
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...adelakunayobami2@gmail.com
